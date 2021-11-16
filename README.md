@@ -6,7 +6,7 @@
 
 E-mail : mddinislam1136 AT gmail.com
 
-LinkedIn :www.linkedin.com/in/islammddin
+LinkedIn : www.linkedin.com/in/islammddin
 <!---
 
 ---!>
